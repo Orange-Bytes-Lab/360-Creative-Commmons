@@ -1,3 +1,16 @@
+<img width="5120" height="2880" alt="peakpx (8)" src="https://github.com/user-attachments/assets/64e3f6cd-5ef2-4a4e-871a-3e2eacd5783b" />
+<img width="5120" height="2880" alt="wallpaperswide com-water-tiger-2-wallpaper-5120x2880" src="https://github.com/user-attachments/assets/07fff375-e340-4c5c-8a69-1d4630ff2f09" />
+<img width="3840" height="2160" alt="wallpaperswide com-water-background-aesthetic-wallpaper-3840x2160" src="https://github.com/user-attachments/assets/e8b3281b-f107-4630-96fa-029dffc28f46" />
+<img width="5760" height="2400" alt="wallpaperswide com-fire-3-wallpaper-5760x2400" src="https://github.com/user-attachments/assets/b8030ec0-a71e-440d-9960-00ea3f36c3eb" />
+<img width="4096" height="2160" alt="undefined - Imgur (4)" src="https://github.com/user-attachments/assets/353aa3ee-d832-419f-807d-0b2f351e7c48" />
+<img width="8192" height="4612" alt="peakpx (7)" src="https://github.com/user-attachments/assets/c4521dcd-9996-413f-b586-8ccafa56cad2" />
+<img width="5120" height="2880" alt="peakpx (6)" src="https://github.com/user-attachments/assets/63dd8514-103a-4bf9-b813-5be172e43796" />
+<img width="4352" height="2400" alt="peakpx (5)" src="https://github.com/user-attachments/assets/1e1e89e0-acce-4d92-9cdd-89e196f5bc69" />
+<img width="7680" height="4320" alt="peakpx (4)" src="https://github.com/user-attachments/assets/4fe7dd03-53ab-43ad-a93a-cb7cfbf9c8db" />
+<img width="5000" height="2500" alt="peakpx (3)" src="https://github.com/user-attachments/assets/985cc2db-8721-44c6-994a-4199d50506eb" />
+<img width="7442" height="4961" alt="peakpx (2)" src="https://github.com/user-attachments/assets/9285ebd6-f515-47cb-b9e1-2f7590fb93b0" />
+<img width="3840" height="2160" alt="IMG_20241018_135725_808" src="https://github.com/user-attachments/assets/282dc046-b319-4ee5-8b88-d9a0ebcd5073" />
+<img width="4096" height="2160" alt="20241005_022209" src="https://github.com/user-attachments/assets/7b072ae0-d865-4de1-8e5d-df01ddd1fe47" />
 <img width="4096" height="2044" alt="aurora-borealis-northern-lights-night-mountains-cold-lake-4928x4632-292 1" src="https://github.com/user-attachments/assets/a07e52a6-a837-4e65-a83f-5e390407482d" />
 <img width="4096" height="2048" alt="Group 95" src="https://github.com/user-attachments/assets/444fd7c4-f34c-4542-b312-bebb39f77782" />
 <img width="4096" height="2041" alt="gargantua-black-5200x3250-9621 1" src="https://github.com/user-attachments/assets/04e68737-0dee-4682-9bb8-f54a899d0e63" />
