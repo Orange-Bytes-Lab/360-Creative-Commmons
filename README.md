@@ -7,6 +7,7 @@
 <img width="4096" height="2029" alt="Group 91 (1)" src="https://github.com/user-attachments/assets/6f737742-cdc4-437e-9d3f-ff0cf2ed3d3c" />
 <img width="4096" height="2018" alt="KomodoVR_20221111A_01_8K_360_TB 1" src="https://github.com/user-attachments/assets/f38c06fa-1e17-41dc-9c52-f5b571fc147b" />
 <img width="4096" height="2018" alt="KomodoVR_20221107A_03_8K_360_TB 1" src="https://github.com/user-attachments/assets/4379e16c-f4b1-4323-b675-2f8deedce1ca" />
+<img width="1774" height="887" alt="1a46aa8d-b146-4d0d-bfd3-feac8589d71d" src="https://github.com/user-attachments/assets/98440794-9d24-48ac-8718-84d9c5d4e8f7" />
 <img width="4096" height="2025" alt="KomodoVR_20221103A_01_8K_360_TB 1" src="https://github.com/user-attachments/assets/179d6e8b-8385-424c-8793-e57421b90c75" />
 <img width="4096" height="2016" alt="KomodoVR_20221102A_01_8K_360_TB 1" src="https://github.com/user-attachments/assets/6f289973-8c26-4c99-ae85-1bc48d5b6efd" />
 <img width="2560" height="1280" alt="Image" src="https://github.com/user-attachments/assets/2baa3ef5-a675-4cfe-8cd7-5e2b41f71c17" />
